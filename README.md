@@ -1,2 +1,2 @@
 # Miri999
-Marağlı icerik
+Marağlı icerik men bunu yaraddim sizde beyenin ulduz atin
